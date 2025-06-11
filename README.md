@@ -1,2 +1,2 @@
-# Algorithmikh_Synthesh_kai_Domhsh_tou_Hxou_AUD812-
+# Algorithmikh_Synthesh_kai_Domhsh_tou_Hxou_AUD812
 Κωνσταντίνος Βελισσαρίου ΤΧ2017054
